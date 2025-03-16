@@ -71,7 +71,4 @@ Menguasi Wilayah / Fasilitas Umum Akan Di Kenakan Denda Sebesar Rp 1.000.000 Den
 Terorisme Terhadap Instansi Desa Akan Di Kenakan Denda Sebesar Rp 2.500.000 Dengan Hukuman Gantung
 
 ## PASAL 5 AYAT 2
-Pembunuhan Terhadap Warga Akan Di Kenakan Denda Sebesar Rp 2.500.000 Dengan Hukuman Gantung
-
-## PASAL 5 AYAT 3
 Penyanderaan Lebih Dari 5 Warga Akan Di Kenakan Denda Sebesar Rp 2.500.000 Dengan Hukuman Gantung
